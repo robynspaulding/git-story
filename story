@@ -1,0 +1,1 @@
+The castle sat on a hill. While it was easy to see, no one could reach it. I know becuase I've been stuck here alone for six years. I tried to escape once, but I was (obviously) unsuccessful.
